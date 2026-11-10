@@ -1,0 +1,1 @@
+# 9-sinf-fizika-mavzusi-bo-yicha
